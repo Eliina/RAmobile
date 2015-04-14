@@ -1,2 +1,2 @@
 # RAmobile
-mob.
+Read me fails calendāru vidžetiem.
